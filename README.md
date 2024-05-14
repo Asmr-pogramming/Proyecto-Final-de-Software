@@ -1,2 +1,5 @@
 # Proyecto-Final-de-Software
-Estes es la paginas de relojes
+
+⌚️ Welcome to our Watch Paradise! 
+
+⏰ Get ready to immerse yourself in the world of timepieces where elegance meets precision. 🎩 Whether you're a horology enthusiast or just beginning to appreciate the art of watchmaking, our collection has something for everyone.
